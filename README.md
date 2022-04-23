@@ -1,0 +1,1 @@
+# KRUCI_RSR
